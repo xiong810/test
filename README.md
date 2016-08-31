@@ -1,2 +1,1 @@
-# test
-项目描述
+Removed according to regulations.
